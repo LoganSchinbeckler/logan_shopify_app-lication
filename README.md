@@ -1,0 +1,1 @@
+# logan_shopify_app-lication
